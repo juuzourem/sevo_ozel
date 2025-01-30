@@ -1,1 +1,1 @@
-Bacıma özel buket çiçek
+Bacıma özel
